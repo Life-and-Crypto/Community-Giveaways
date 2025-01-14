@@ -1,6 +1,6 @@
 # EN
 
-## Givey from the validator
+## Giveaways from the validator
 
 Hello to all NFT lovers and fans of the STARS token
 
