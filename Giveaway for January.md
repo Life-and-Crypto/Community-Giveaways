@@ -12,11 +12,11 @@ Details in the comments under the post.
 2. Your delegation must be 3k+ STARS tokens in total. For this, you will receive 1 ticket to participate in the raffle
 3. You can have a maximum of 5 tickets per address.
 
-3k+ - 1 ticket
-6k+ - 2 tickets
-10k+ - 3 tickets
-20k+ - 4 tickets
-50k+ and more - 5 tickets
+3k+ - 1 ticket  
+6k+ - 2 tickets  
+10k+ - 3 tickets  
+20k+ - 4 tickets  
+50k+ and more - 5 tickets  
 
 4. You must leave your STARS address under this post.
 5. The raffle will be held by a randomizer on Thursday, January 30th.
