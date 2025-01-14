@@ -1,6 +1,6 @@
 # EN
 
-##Givey from the validator
+## Givey from the validator
 
 Hello to all NFT lovers and fans of the STARS token
 
@@ -25,7 +25,7 @@ Details in the comments under the post.
 
 The deadline for accepting addresses is January 29 at 21:00 Moscow time.
 The prize pool is 20k STARS
-We will decide the number of winners a little later by voting.
+We will decide the number of winners a little later by voting.  
 https://x.com/lifeandcrypto_/status/1878904825066475827
 
 # RU
