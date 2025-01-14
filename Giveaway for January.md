@@ -23,8 +23,8 @@ Details in the comments under the post.
 6. To watch the draw live, you need to subscribe to our discord channel and go through a simple verification.
 7. The results will be published on Twitter the day after the draw.
 
-The deadline for accepting addresses is January 29 at 21:00 Moscow time.
-The prize pool is 20k STARS
+The deadline for accepting addresses is January 29 at 21:00 Moscow time.  
+The prize pool is 20k STARS  
 We will decide the number of winners a little later by voting.  
 https://x.com/lifeandcrypto_/status/1878904825066475827
 
@@ -53,6 +53,7 @@ https://x.com/lifeandcrypto_/status/1878904825066475827
 6. Чтобы посмотреть розыгрыш в прямом эфире вам необходимо подписаться на наш дискорд канал и пройти простенькую верификацию.
 7. Результаты будут опубликованы в Твиттере на следующий день после розыгрыша.
 
-Дедлайн приема адресов 29 января в 21.00 по Московскому времени.
-Призовой пул составляет 20к STARS
-Количество победителей мы решим чуть позже путем голосования.
+Дедлайн приема адресов 29 января в 21.00 по Московскому времени.  
+Призовой пул составляет 20к STARS  
+Количество победителей мы решим чуть позже путем голосования.  
+https://x.com/lifeandcrypto_/status/1878904825066475827
