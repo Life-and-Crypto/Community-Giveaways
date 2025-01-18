@@ -12,30 +12,30 @@ Each month, the criteria for participation will increase, which will lead to an 
 
 ## 2. In February, the minimum delegation is:
 
-6k+ STARS - 1 ticket
-10k+ STARS - 2 tickets
-20k+ STARS - 3 tickets
-50k+ STARS - 4 tickets
-80k+ STARS - 5 tickets
+6k+ STARS - 1 ticket  
+10k+ STARS - 2 tickets  
+20k+ STARS - 3 tickets  
+50k+ STARS - 4 tickets  
+80k+ STARS - 5 tickets  
 
 (maximum 5 tickets per address and twitter account)
 
 ## 3. In March, the minimum delegation for participation will be:
 
-10k+ STARS - 1 ticket
-20k+ STARS - 2 tickets
-50k+ STARS - 3 tickets
-80k+ STARS - 4 tickets
-110k+ STARS - 5 tickets
+10k+ STARS - 1 ticket  
+20k+ STARS - 2 tickets  
+50k+ STARS - 3 tickets  
+80k+ STARS - 4 tickets  
+110k+ STARS - 5 tickets  
 
 (maximum 5 tickets per address and twitter account)
 
 ## 4. For April, the delegation numbers will be as follows:
 
-20k+ STARS - 1 ticket
-50k+ STARS - 2 tickets
-80k+ STARS - 3 tickets
-110k+ STARS - 4 tickets
-140k+ STARS - 5 tickets
+20k+ STARS - 1 ticket  
+50k+ STARS - 2 tickets  
+80k+ STARS - 3 tickets  
+110k+ STARS - 4 tickets  
+140k+ STARS - 5 tickets  
 
 (maximum 5 tickets per address and twitter account)
