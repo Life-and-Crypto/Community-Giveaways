@@ -1,8 +1,8 @@
 # Our team wants to support the entire NFT community, people who trust us and our beloved delegators.
 
-Therefore, we are pleased to inform you that our young team will send 70% of the rewards received from your delegations to the draws from February to December inclusive.
-Wallets that have not missed a single draw since February will participate in the December draw.
-Additional rewards for delegators are also possible in any month at the discretion of the team.
+Therefore, we are pleased to inform you that our young team will send 70% of the rewards received from your delegations to the draws from February to December inclusive.  
+Wallets that have not missed a single draw since February will participate in the December draw.  
+Additional rewards for delegators are also possible in any month at the discretion of the team.  
 
 Each month, the criteria for participation will increase, which will lead to an increase in the prize pool.
 
