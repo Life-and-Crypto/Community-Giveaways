@@ -8,7 +8,7 @@ Each month, the criteria for participation will increase, which will lead to an 
 
 # Now let's move on to the criteria for participation in the February draw:
 
-1. Subscription to the Twitter account
+1. Subscription to the [Twitter account](https://x.com/lifeandcrypto_)
 
 ## 2. In February, the minimum delegation is:
 
