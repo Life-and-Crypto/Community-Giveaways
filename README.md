@@ -9,7 +9,7 @@
    Prize - 4k STARS
 ---------------------------------------------------------------------------------------------------
 3. March draws - [Link](https://x.com/lifeandcrypto_/status/1896819442669289720)  
-   Winners of the February draw - [Link](https://x.com/lifeandcrypto_/status/1906747199133815131)  
+   Winners of the March draw - [Link](https://x.com/lifeandcrypto_/status/1906747199133815131)  
    Prize - 6k STARS
 ---------------------------------------------------------------------------------------------------
 4. April draws - [Link](https://x.com/lifeandcrypto_/status/1907708443365871890)  
