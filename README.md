@@ -16,4 +16,15 @@
    Winners of the April draw - [Link](https://x.com/lifeandcrypto_/status/1917603649825448238)  
    Prize - 9k STARS + 0.000137 WBTC
 ----------------------------------------------------------------------------------------------------
-5. 
+5. May draws - [Link](https://x.com/lifeandcrypto_/status/1919364986985476494)  
+   Winners of the May draw - [Link](https://x.com/lifeandcrypto_/status/1928862056259727558)  
+   Prize - 10k STARS + 0.000137 WBTC
+---------------------------------------------------------------------------------------------------- 
+6. June draws - [Link](https://x.com/lifeandcrypto_/status/1930377054177943649)  
+   Winners of the June draw - [Link](https://x.com/lifeandcrypto_/status/1939721881604509727)  
+   Prize - 10k STARS
+----------------------------------------------------------------------------------------------------
+7. July draws - [Link](https://x.com/lifeandcrypto_/status/1942283244323684812)  
+   Winners of the April draw - [Link](https://x.com/lifeandcrypto_/status/1951306697122664514)  
+   Prize - 10k STARS
+----------------------------------------------------------------------------------------------------
