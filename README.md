@@ -28,3 +28,7 @@
    Winners of the April draw - [Link](https://x.com/lifeandcrypto_/status/1951306697122664514)  
    Prize - 10k STARS
 ----------------------------------------------------------------------------------------------------
+8. August draws - [Link](https://x.com/lifeandcrypto_/status/1952598797932204367)  
+   Winners of the August draw - [Link](https://x.com/lifeandcrypto_/status/1962172832449757601)  
+   Prize - 10k STARS
+----------------------------------------------------------------------------------------------------
