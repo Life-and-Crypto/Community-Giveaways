@@ -32,3 +32,7 @@
    Winners of the August draw - [Link](https://x.com/lifeandcrypto_/status/1962172832449757601)  
    Prize - 10k STARS
 ----------------------------------------------------------------------------------------------------
+9. September draws - [Link](https://x.com/lifeandcrypto_/status/1963206878936084701)  
+   Winners of the September draw - [Link]()  
+   Prize - 10k STARS
+----------------------------------------------------------------------------------------------------
