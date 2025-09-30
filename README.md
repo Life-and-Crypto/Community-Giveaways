@@ -33,6 +33,10 @@
    Prize - 10k STARS
 ----------------------------------------------------------------------------------------------------
 9. September draws - [Link](https://x.com/lifeandcrypto_/status/1963206878936084701)  
-   Winners of the September draw - [Link]()  
+   Winners of the September draw - [Link](https://x.com/lifeandcrypto_/status/1973083306846552347)  
+   Prize - 10k STARS
+----------------------------------------------------------------------------------------------------
+10. Octobre draws - [Link]()  
+   Winners of the Octobre draw - [Link]()  
    Prize - 10k STARS
 ----------------------------------------------------------------------------------------------------
